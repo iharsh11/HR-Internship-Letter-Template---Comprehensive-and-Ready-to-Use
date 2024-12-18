@@ -1,0 +1,1 @@
+# HR-Internship-Letter-Template---Comprehensive-and-Ready-to-Use
